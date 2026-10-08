@@ -1,1 +1,1 @@
-INI BUKAN APA APA JIR, CUMA TUGAS
+jangan di coba yaa, ini cuma tugas
